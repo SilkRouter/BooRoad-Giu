@@ -7,6 +7,4 @@ Francesco
 
 Chiara
 
-
-
 Ale
